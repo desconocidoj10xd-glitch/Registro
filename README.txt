@@ -1,3 +1,4 @@
+Sigue estos pasos son faciles no son complicados porfavor te indico tambien lo que incluye porfavor no borrar todo esto es importante solo hazlo que te pide 
 SISTEMA DE CITAS — Instrucciones de instalación
 =================================================
 
